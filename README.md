@@ -60,7 +60,7 @@ Here are some projects I am working on:
   [https://www.linkedin.com/in/sania-rawat-816b18336](https://www.linkedin.com/in/sania-rawat-816b18336?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 
 - 📧 Email:  
-  saniarawat2222@gmail.com
+  saniadev2222@gmail.com
 
 ---
 
