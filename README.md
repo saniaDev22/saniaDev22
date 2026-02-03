@@ -57,10 +57,10 @@ Here are some projects I am working on:
 ## 📬 Connect With Me
 
 - 💼 LinkedIn:  
-  https://www.linkedin.com/in/sania-rawat-816b18336
+  [https://www.linkedin.com/in/sania-rawat-816b18336](https://www.linkedin.com/in/sania-rawat-816b18336?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 
 - 📧 Email:  
-  sania.rawat@gmail.com
+  saniarawat2222@gmail.com
 
 ---
 
